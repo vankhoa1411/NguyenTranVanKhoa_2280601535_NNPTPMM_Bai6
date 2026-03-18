@@ -1,1 +1,2 @@
-# NguyenTranVanKhoa_2280601535_NNPTPMM_Bai6
+Nguyễn Trần Văn Khoa
+2280601535
